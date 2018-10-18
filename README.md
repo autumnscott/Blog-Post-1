@@ -1,5 +1,7 @@
 # Blog-Post-1
 
+URL: https://theinspirationpool.home.blog/
+
 ## The Looking Glass Effect
 October 17, 2018
 
@@ -12,3 +14,4 @@ The idea is to create a “looking glass” effect that lays on top of images. I
 https://create.adobe.com/2018/5/24/free_photoshop_actio.html
 
 Here are some of my pieces I used Campau’s action set on. Tell me what you think! Do you like this “looking glass” effect or do you think it’s a waste of time?
+
