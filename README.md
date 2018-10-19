@@ -1,6 +1,6 @@
 # Blog-Post-1
 
-To see me blog click on this URL: https://theinspirationpool.home.blog/
+To visit my blog click on this URL: https://theinspirationpool.home.blog/
 
 ## The Looking Glass Effect
 October 17, 2018
