@@ -5,7 +5,7 @@ To see me blog click on this URL: https://theinspirationpool.home.blog/
 ## The Looking Glass Effect
 October 17, 2018
 
-![adobe pictures](thefloatingcity.jpg)
+![adobe pictures](aobe-1.jpg)
 ![adobe](AdobeStock_194008002.jpg)
 
 Images created (in order from left to right) by Nicolle Rodriguez and Joel Robison
