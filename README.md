@@ -6,6 +6,7 @@ URL: https://theinspirationpool.home.blog/
 October 17, 2018
 
 ![adobe pictures](thefloatingcity.jpg)
+
 ![Wacom Tablet](chicagoedit.jpg)
 
 Images created (in order from left to right) by Nicolle Rodriguez and Joel Robison
@@ -18,6 +19,7 @@ https://create.adobe.com/2018/5/24/free_photoshop_actio.html
 
 Here are some of my pieces I used Campau’s action set on. Tell me what you think! Do you like this “looking glass” effect or do you think it’s a waste of time?
 
-![Wacom Tablet](thefloatingcity.png)
-![Wacom Tablet](chicagoedit.png)
+![Wacom Tablet](thefloatingcity.jpg)
+
+![Wacom Tablet](chicagoedit.jpg)
 
