@@ -18,6 +18,6 @@ https://create.adobe.com/2018/5/24/free_photoshop_actio.html
 
 Here are some of my pieces I used Campau’s action set on. Tell me what you think! Do you like this “looking glass” effect or do you think it’s a waste of time?
 
-![Wacom Tablet](tablet.png)
-![Wacom Tablet](tablet.png)
+![Wacom Tablet](thefloatingcity.png)
+![Wacom Tablet](chicagoedit.png)
 
