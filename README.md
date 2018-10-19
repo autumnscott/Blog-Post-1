@@ -8,7 +8,7 @@ October 17, 2018
 ![adobe pictures](thefloatingcity.jpg)
 ![Wacom Tablet](Chicagoedit.jpg)
 
-Images created (in order from left to right) by Nicolle Rodriguez and Joel Robison
+"Images created (in order from left to right) by Nicolle Rodriguez and Joel Robison"
 
 Sometimes it’s fun to pick up on different techniques that other artists are using. Often enough, we get caught up in the habitual cycle of how we’re used to doing things, and we forget to explore the vast depths of creativity.  I think it’s important to build community so that we can inspire one another and look at things through fresh eyes. With that being said, here’s a quick look at a Photoshop technique featured on the Adobe Create magazine.
 
