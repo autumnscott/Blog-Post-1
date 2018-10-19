@@ -6,7 +6,7 @@ URL: https://theinspirationpool.home.blog/
 October 17, 2018
 
 ![adobe pictures](thefloatingcity.jpg)
-![Wacom Tablet](Chicagoedit.jpg)
+![adobe](AdobeStock_194008002.jpg)
 
 Images created (in order from left to right) by Nicolle Rodriguez and Joel Robison
 
